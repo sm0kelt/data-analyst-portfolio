@@ -17,10 +17,9 @@
 
 
 
-**Contact
-[Include your contact information in case anyone wants to reach out.]
+**Contact:**
 
 
 
-**https://www.linkedin.com/in/remigijus-ja%C5%A1inskas-3a357919b/**
+Via linkedin: **https://www.linkedin.com/in/remigijus-ja%C5%A1inskas-3a357919b/**
 
